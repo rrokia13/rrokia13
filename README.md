@@ -7,3 +7,5 @@
 [Deso](https://github.com/DesolateMeadow)
 [Rumia](https://github.com/forgedshadows)
 [Mark](https://github.com/mymetamy)
+[Majin](https://github.com/HEDGYMAJIN)
+[Lord X](https://github.com/LordXtism)
