@@ -1,1 +1,9 @@
-[draco](https://github.com/Draco-Marco?tab=following) ♡
+♡.
+[draco](https://github.com/Draco-Marco?tab=following) 
+[Ash](https://github.com/IamwhatIhate)
+[Cherrie](https://github.com/CherrieJam)
+[Star](https://github.com/CosmeticStar)
+[Lazi](https://github.com/lazikoly)
+[Deso](https://github.com/DesolateMeadow)
+[Rumia](https://github.com/forgedshadows)
+[Mark](https://github.com/mymetamy)
