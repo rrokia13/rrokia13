@@ -9,3 +9,4 @@
 [Mark](https://github.com/mymetamy)
 [Majin](https://github.com/HEDGYMAJIN)
 [Lord X](https://github.com/LordXtism)
+[Rei](https://github.com/Rei4ei)
