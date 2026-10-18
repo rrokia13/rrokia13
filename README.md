@@ -1,5 +1,5 @@
-I LOVE YOU ! 💙💙 [Ash](https://github.com/IamwhatIhate)
-♡.
+I LOVE YOU ! [Ash](https://github.com/IamwhatIhate)
+💙♡. CHUDS BEWARE: !!!!!
 [draco](https://github.com/Draco-Marco?tab=following) 
 [Cherrie](https://github.com/CherrieJam)
 [Star](https://github.com/CosmeticStar)
